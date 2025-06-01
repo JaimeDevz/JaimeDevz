@@ -12,7 +12,7 @@ I'm a self-taught full-stack developer passionate about building clean and anima
 - 🚀 More coming soon...
 
 ## 📫 Let's connect!
-Email: jaiimetorres-1@outlook.com
+Email: jaimetorres-1@outlook.com
 
 
 <!---
